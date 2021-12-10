@@ -1,1 +1,1 @@
-Bonjour, je m'appelle Rémi
+Bonjour, nous nous appelons Rémi Beck et Théo Michels
